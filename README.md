@@ -8,7 +8,7 @@
 # 🛠 System Requirements:
 [![https://bit.ly/3NabO0V](https://bit.ly/47R9uEa)](https://bit.ly/3NabO0V)
 # 🎲 Functions:
-[![https://bit.ly/3NabO0V](https://bit.ly/47FDnYq)](https://bit.ly/3NabO0V)
+[![https://bit.ly/3NabO0V](https://bit.ly/47FhFUo)](https://bit.ly/3NabO0V)
 [![https://bit.ly/3NabO0V](https://bit.ly/47WMnbi)](https://bit.ly/3NabO0V)
 # ⚙️ Instruction:
 [![https://bit.ly/3NabO0V](https://bit.ly/484zBHX)](https://bit.ly/3NabO0V)
